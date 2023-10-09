@@ -14,7 +14,7 @@
  
 <br>
  
-### Para saber mais, me segue nas redes sociais
+
  
 <div> 
   
