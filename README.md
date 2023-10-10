@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil JuBuq😁
+## Bem-vindo(a) ao perfil JuBuq
 
 <div>
    <a href="https://github.com/jubuq">
